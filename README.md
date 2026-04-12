@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-GACD060819HMCRSGA2
+GACD060819HMCRSGA2
